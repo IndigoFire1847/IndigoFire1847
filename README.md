@@ -1,0 +1,5 @@
+- 👋 Hi, I’m IndigoFire
+- 👀 I’m interested in Code, Football and also motor racing
+- 🌱 I’m currently learning how to code in python and also HTML
+- 💞️i am currently not looking to collab however i might in the future!
+- 📫 my DMs on discord are currently closed however you can join my discord server here https://discord.gg/YBEZZkyewh
